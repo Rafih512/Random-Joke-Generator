@@ -1,0 +1,1 @@
+https://funnyjokegen.netlify.app/
